@@ -1,2 +1,2 @@
 # Adnsu
-# Githup 3cu tapsiriq
+# Github 3cu tapsiriqq
